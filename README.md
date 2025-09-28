@@ -1,1 +1,1 @@
-# aidensmithbsu.github.io
+# Aiden Smith's personal GitHub page
